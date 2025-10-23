@@ -1,2 +1,2 @@
-thành công rồi hả
+hay quá
 
